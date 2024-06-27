@@ -7,3 +7,6 @@ brief quotations embodied in critical reviews and certain other noncommercial us
 permitted by copyright law.
 For permission requests or further inquiries, please contact the author at
 LeonidPower@hotmail.com
+
+Copyright© 2024, Leonidas Ttofari
+All rights reserved.
