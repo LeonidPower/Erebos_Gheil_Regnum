@@ -1,5 +1,5 @@
 # Erebos_Gheil_Regnum
-Erebos Gheil Regnum Codes
+Erebos Gheil Regnum Codes, Thesis and Presentation 
  
 No part of this publication may be reproduced, distributed, or transmitted in any form or
 by any means, without the prior written permission of the author, except in the case of
